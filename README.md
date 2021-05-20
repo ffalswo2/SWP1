@@ -1,3 +1,3 @@
-20172614 Minjae Kim
+20172614    Minjae Kim
 Kookmin University S
 changed
